@@ -1,0 +1,1 @@
+# marifer-tech-Explorando-o-Potencial-de-IAs-Generativas-
